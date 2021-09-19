@@ -12,6 +12,9 @@
 
 <body>
     {{template "_nav"}}
+    <h1></h1>
+
+
     <article class="posts">
         {{range .}}
         <div class="posts-item">

@@ -1,0 +1,52 @@
+# Pray for Helen's Kidney Transplantation Surgery
+
+Dear friends,   
+This is Helen, your sister in Christ Jesus, writing to all of you who love and are loved by God. Grace to you and peace from our Heavenly Father.   
+
+I am writing this letter to ask for prayers because I need to raise some money so that I can have a kidney transplantation surgery in November of 2021. 
+
+I don't know whether you know me or not, but because we are all brothers and sisters in Jesus, you may see this letter.  Let me introduce myself. **My name is Deng Junxia (Helen), And I was born in 1986. My hometown is Liaocheng, Shandong Province, China. I have known Jesus since 2014. I met him while I was in Nanjing earning my Master degree.** 
+
+In 2018, I returned to Qingdao and worked as a biomedical editor for one year.  In 2019, I went for a healthy body check and found out I had kidney problems. It has been difficult for me to admit to myself that I am seriously sick! This health report was extremely difficult for me to deal with, and I have dealt with depression on many occasions. In all of my 30+ years, I would have never thought that I would be so severely sick that death was a possibility. My world was suddenly dark and stormy, like a black cloud hanging over my head. I couldn’t see hope and I couldn’t see a future. 
+
+I started to ask, “Why? Why me, Lord? You say I am your daughter. How could you allow this kind of catastrophic thing happened in my life?” After many worried days and sleepless nights, fear caught me and caused me to feel like I couldn't breathe. “Where are you Lord?” I kept asking. “Please heal me.” 
+
+**I start dialysis at the beginning of 2020, which means that I must go to the hospital three times a week for four hours each time.** Even these days felt dark at the beginning, but with the help of my church and the support of brothers and sisters, my spirit began to heal. Through the suffering of my body, I started to understand more about the pains and sufferings of Jesus when he was sacrificed and crucified on the cross for us. 
+
+**If you have ever been trapped in darkness, you cherish the light that much more.** So when I found out that I was eligible for a kidney transplantation surgery, I was very happy. Even though I know that this is a dangerous and the surgery may fail, I also know this is my chance. Nothing in under my control. I can only rely on God. 
+Now, I am facing some really big challenges. One of the biggest issues is the surgery fee of 500,000 RMB, which equals to 70,000 US dollars. Please pray that God will provide these funds from heaven to the earth. 
+
+**"You are a hiding place for me, you preserve me from trouble; you surround me with shouts of deliverance. "** --- Psalm 32:7
+
+Before I became sick, I worked in many different places sharing the gospel in China, Nepal, India, and Thailand. I hope and pray that G od will heal me and give me a healthy body, so I can continue my journey with him.
+## Please keep praying for me on:  
+* I still need 400, 000 RMB for my kidney transplant.
+* Please pray I can have a good communication with the doctor who will give me surgery. He telephoned me and told me he will ask me to come soon, but I have heard nothing yet.
+* Please pray for the preparation of my heart for the coming surgery, remove all my fears and worries.
+* After the surgery, pray the kidney adapts to its new owner quickly and there are no conplications. 
+
+If you would like to support me financially, you may choose one of the ways below:
+
+Paypal: 1243493232@qq.com    Name: Deng Junxia
+Alipay: 18260081223;   Name: 邓俊霞 （Deng Junxia)
+
+God bless you.   
+Helen    
+love  2021-9-14   
+
+![paypal.png](/images/paypal.png)
+
+![1.jpg](/images/1.jpg)
+I was in Anhui, with children from the orphange   
+
+![2.jpg](/images/2.jpg)
+I was in Nepal (2014)    
+
+![3.jpg](/images/3.jpg)
+2016, in Thailand    
+
+![4.jpg](/images/4.jpg)
+2018 in India     
+
+![5.jpg](/images/5.jpg)   
+2020, in Qingdao after one year dialysis    
